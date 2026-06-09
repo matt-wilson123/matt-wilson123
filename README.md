@@ -1,5 +1,5 @@
 - 👋 Hello there, I’m @matt-wilson123 aka Matt Wilson
-- 👀 I’m interested in ...
+- 👀 I’m interested in product, AI (isn't everyone) and data
 - 🌱 I’m currently Head of Product at Forge Holiday Group
 - 💞️ I’m looking to collaborate on any ideas which improve peoples lives
 - 📫 You can reach me at matt@productgrowth.co.uk or https://www.linkedin.com/in/mwilson26/
